@@ -1,5 +1,7 @@
-### Hi there 👋
+### 👋 Hi there, I'm Will!
+I create stuff here on Github. Feel free to check out my website with some more information at [willm.xyz](https://willm.xyz).
 
+![Discord](https://img.shields.io/discord/339188357253038092?color=7289DA&logo=discord&style=for-the-badge) ![Spotify](https://img.shields.io/badge/dynamic/json?color=1DB954&style=for-the-badge&logo=spotify&label=SPOTIFY&query=res&url=https://bruhapi.xyz/spotify)
 <!--
 **whasonyt/whasonyt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

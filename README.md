@@ -12,7 +12,7 @@ I create stuff here on Github. Feel free to check out my website with some more 
 - [How to use ANY emoji on DISCORD without NITRO!](https://www.youtube.com/watch?v=KDO8NrtLxHQ)
 <!-- YOUTUBE:END -->
 
-[Want more videos?](https://yt.willm.xyz/videos)
+[▶ Want more videos?](https://yt.willm.xyz/videos)
 
 <!--![Stats](https://github-readme-stats.vercel.app/api/top-langs/?username=whasonyt&layout=compact&theme=dark)
 <!--

@@ -5,6 +5,11 @@ I create stuff here on Github. Feel free to check out my website with some more 
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [DISCORD MADLIBS](https://www.youtube.com/watch?v=31FDKEzlYfo)
+- [I Made A Song Using Discord Text to Speech](https://www.youtube.com/watch?v=7-WogOyM2f0)
+- [I was forced to make this video](https://www.youtube.com/watch?v=RqHNhkfaB2c)
+- [How to Create Your Own Website (FREE FOREVER)](https://www.youtube.com/watch?v=dP4ZoMs5V3w)
+- [How to use ANY emoji on DISCORD without NITRO!](https://www.youtube.com/watch?v=KDO8NrtLxHQ)
 <!-- YOUTUBE:END -->
 
 [Want more videos?](https://yt.willm.xyz/videos)

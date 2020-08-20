@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [playin games n shit k](https://www.youtube.com/watch?v=Nm7idiiBuis)
 - [DISCORD IS REMOVING THE VERIFIED BOT DEVELOPER BADGE!](https://www.youtube.com/watch?v=yVequVp2N58)
 - [DISCORD MADLIBS](https://www.youtube.com/watch?v=31FDKEzlYfo)
 - [I Made A Song Using Discord Text to Speech](https://www.youtube.com/watch?v=7-WogOyM2f0)
 - [I was forced to make this video](https://www.youtube.com/watch?v=RqHNhkfaB2c)
-- [How to Create Your Own Website (FREE FOREVER)](https://www.youtube.com/watch?v=dP4ZoMs5V3w)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

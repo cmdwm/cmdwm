@@ -14,9 +14,9 @@
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)
 ## 👤 Social Media
-bird: [willmccrudden](https://twitter.com/willmccrudden)
-obama: [will.mccrudden](https://instagram.com/will.mccrudden)
-red: [willhasawesomeshoes](https://yt.willm.xyz)
+>>> Twitter: [willmccrudden](https://twitter.com/willmccrudden) <br>
+Instagram: [will.mccrudden](https://instagram.com/will.mccrudden) <br>
+YouTube: [willhasawesomeshoes](https://yt.willm.xyz)
 <!--![Stats](https://github-readme-stats.vercel.app/api/top-langs/?username=whasonyt&layout=compact&theme=dark)
 <!--
 **whasonyt/whasonyt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

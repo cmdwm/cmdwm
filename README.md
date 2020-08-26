@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [TOP 5 UPCOMING DISCORD FEATURES (Free Nitro!)](https://www.youtube.com/watch?v=4xc-xNW4eIs)
 - [DISPLAY WHAT YOUTUBE VIDEOS YOU'RE WATCHING ON DISCORD!](https://www.youtube.com/watch?v=-SEW_SdeaSw)
 - [playin games n shit k](https://www.youtube.com/watch?v=Nm7idiiBuis)
 - [i'ts crazies!](https://www.youtube.com/watch?v=wl-Nj-v33mc)
 - [DISCORD IS REMOVING THE VERIFIED BOT DEVELOPER BADGE!](https://www.youtube.com/watch?v=yVequVp2N58)
-- [DISCORD MADLIBS](https://www.youtube.com/watch?v=31FDKEzlYfo)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

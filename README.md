@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [ＴＩＥ  ＭＥ  ＵＰ 🧵](https://www.youtube.com/watch?v=TM_8vPFtIVY)
 - [my attempt at trying to edit like sc6ut](https://www.youtube.com/watch?v=liLkGwosxNg)
 - [making some changes...](https://www.youtube.com/watch?v=VHpC1YyM160)
 - [How to GET FREE DISCORD NITRO (2020)](https://www.youtube.com/watch?v=nxXjLforZI8)
 - [How to PARTNER YOUR DISCORD SERVER! (New Video)](https://www.youtube.com/watch?v=0l70NKB2IhA)
-- [How to CHANGE YOUR DISCORD ICON!](https://www.youtube.com/watch?v=qKZa9pyyWXk)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

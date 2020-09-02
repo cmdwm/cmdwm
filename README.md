@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [making some changes...](https://www.youtube.com/watch?v=VHpC1YyM160)
 - [How to GET FREE DISCORD NITRO (2020)](https://www.youtube.com/watch?v=nxXjLforZI8)
 - [How to PARTNER YOUR DISCORD SERVER! (New Video)](https://www.youtube.com/watch?v=0l70NKB2IhA)
 - [How to CHANGE YOUR DISCORD ICON!](https://www.youtube.com/watch?v=qKZa9pyyWXk)
 - [Discord's PARTNER PROGRAM IS BACK!](https://www.youtube.com/watch?v=6z3RPY3_Gg0)
-- [cup song with a gun (spongebob edition)](https://www.youtube.com/watch?v=FACzURD3sIQ)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

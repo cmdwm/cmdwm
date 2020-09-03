@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [The DISCORD VERIFICATION PROGRAM is OPEN!](https://www.youtube.com/watch?v=SsRDO4IyIN4)
 - [Redrawing All Discord Badges in MS Paint](https://www.youtube.com/watch?v=Z9BybxFolNI)
 - [ＴＩＥ  ＭＥ  ＵＰ 🧵](https://www.youtube.com/watch?v=TM_8vPFtIVY)
 - [my attempt at trying to edit like sc6ut](https://www.youtube.com/watch?v=liLkGwosxNg)
 - [making some changes...](https://www.youtube.com/watch?v=VHpC1YyM160)
-- [How to GET FREE DISCORD NITRO (2020)](https://www.youtube.com/watch?v=nxXjLforZI8)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

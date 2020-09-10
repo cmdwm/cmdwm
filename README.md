@@ -5,7 +5,7 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
-- [Discord Wumpus is TAKING OVER MY COMPUTER!](https://www.youtube.com/watch?v=Ys9iVxowKq8)
+- [Wumpus is TAKING OVER MY COMPUTER! [Discord YTP]](https://www.youtube.com/watch?v=Ys9iVxowKq8)
 - [This Video Was Recorded Using a PRINTER.](https://www.youtube.com/watch?v=wd5HOuhlya4)
 - [What happens if you photocopy a laptop screen? [WEIRD]](https://www.youtube.com/watch?v=Aznd1YKUbVo)
 - [How to HIDE YOUR TYPING STATUS on DISCORD!](https://www.youtube.com/watch?v=tflwos_V2QE)

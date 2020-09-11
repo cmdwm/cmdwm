@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [How to Get Free Spongebob Squarepants Text to Speech! [2020 WORKING]](https://www.youtube.com/watch?v=C3AecMDj5Rk)
 - [Wumpus is TAKING OVER MY COMPUTER! [Discord YTP]](https://www.youtube.com/watch?v=Ys9iVxowKq8)
 - [This Video Was Recorded Using a PRINTER.](https://www.youtube.com/watch?v=wd5HOuhlya4)
 - [What happens if you photocopy a laptop screen? [WEIRD]](https://www.youtube.com/watch?v=Aznd1YKUbVo)
 - [How to HIDE YOUR TYPING STATUS on DISCORD!](https://www.youtube.com/watch?v=tflwos_V2QE)
-- [I told EVERYONE to PING ME on DISCORD!](https://www.youtube.com/watch?v=1tg4OMvLK8I)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

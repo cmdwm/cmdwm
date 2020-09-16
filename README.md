@@ -5,7 +5,7 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
-- [balls in yo jaws](https://www.youtube.com/watch?v=LQlp4jd-Pd4)
+- [How to Get RAINBOW TEXT on DISCORD!](https://www.youtube.com/watch?v=7hFDnMZDMig)
 - [Welcome to WillHasAwesomeShoes! (Channel Promo 2020)](https://www.youtube.com/watch?v=mj-01mHmG6c)
 - [How to Get Free Spongebob Squarepants Text to Speech! [2020 WORKING]](https://www.youtube.com/watch?v=C3AecMDj5Rk)
 - [Wumpus is TAKING OVER MY COMPUTER! [Discord YTP]](https://www.youtube.com/watch?v=Ys9iVxowKq8)

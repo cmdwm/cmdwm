@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [How to KEEP YOUR GLITCH PROJECTS ONLINE 24/7 (Glitch UptimeRobot Ban Bypass)](https://www.youtube.com/watch?v=TsQLltVOokM)
 - [How to Get RAINBOW TEXT on DISCORD!](https://www.youtube.com/watch?v=7hFDnMZDMig)
 - [Welcome to WillHasAwesomeShoes! (Channel Promo 2020)](https://www.youtube.com/watch?v=mj-01mHmG6c)
 - [How to Get Free Spongebob Squarepants Text to Speech! [2020 WORKING]](https://www.youtube.com/watch?v=C3AecMDj5Rk)
 - [Wumpus is TAKING OVER MY COMPUTER! [Discord YTP]](https://www.youtube.com/watch?v=Ys9iVxowKq8)
-- [This Video Was Recorded Using a PRINTER.](https://www.youtube.com/watch?v=wd5HOuhlya4)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

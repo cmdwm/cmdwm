@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [Introducing HotFront...](https://www.youtube.com/watch?v=MPV6hdRS1iQ)
 - [Playing AMONG US For The FIRST TIME!](https://www.youtube.com/watch?v=3wPs85EN6M8)
 - [How to KEEP YOUR GLITCH PROJECTS ONLINE 24/7 (Glitch UptimeRobot Ban Bypass)](https://www.youtube.com/watch?v=TsQLltVOokM)
 - [How to Get RAINBOW TEXT on DISCORD!](https://www.youtube.com/watch?v=7hFDnMZDMig)
 - [Welcome to WillHasAwesomeShoes! (Channel Promo 2020)](https://www.youtube.com/watch?v=mj-01mHmG6c)
-- [How to Get Free Spongebob Squarepants Text to Speech! [2020 WORKING]](https://www.youtube.com/watch?v=C3AecMDj5Rk)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

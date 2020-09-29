@@ -6,10 +6,10 @@
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
 - [17 billion subscribrers? time to do the ztinky lege!](https://www.youtube.com/watch?v=7qN87jnDjeo)
-- [google chrome chicken bone disowned ice cream cone](https://www.youtube.com/watch?v=lOJ1if7xexI)
 - [I Trolled A Streamer With 75,000 Subscribers](https://www.youtube.com/watch?v=PYvrzFbCq_E)
 - [Introducing HotFront...](https://www.youtube.com/watch?v=MPV6hdRS1iQ)
 - [Playing AMONG US For The FIRST TIME!](https://www.youtube.com/watch?v=3wPs85EN6M8)
+- [How to KEEP YOUR GLITCH PROJECTS ONLINE 24/7 (Glitch UptimeRobot Ban Bypass)](https://www.youtube.com/watch?v=TsQLltVOokM)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

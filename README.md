@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
-- [INVADING ZOOM CLASSES (LIVE)](https://www.youtube.com/watch?v=BpecEwtctSQ)
 - [INVADING ZOOM CLASSES (LIVE)](https://www.youtube.com/watch?v=w1kHrpdDLEQ)
 - [Get FREE DISCORD NITRO for Halloween! (New Event)](https://www.youtube.com/watch?v=Iy3qpAqsyfo)
 - [Here Comes Carl : Official Movie Trailer](https://www.youtube.com/watch?v=8As4b28PW-A)
 - [Dear Roblox, I'm so sorry.](https://www.youtube.com/watch?v=4WDEMQwnyqs)
+- [Spoon Ads SUCK! (so i made one)](https://www.youtube.com/watch?v=9ep1msdMyN0)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

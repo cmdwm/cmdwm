@@ -5,8 +5,8 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
-- [coming at u live from bathtub (again)](https://www.youtube.com/watch?v=lMGrDtWmErM)
 - [Reacting to the Worst TikToks We Could Find](https://www.youtube.com/watch?v=JMIweFvgVvI)
+- [coming at u live from bathtub (again)](https://www.youtube.com/watch?v=lMGrDtWmErM)
 - [Playing Omegle Challenges...](https://www.youtube.com/watch?v=BMGimjcGypY)
 - [How to Play Minecraft At School (FREE & UNBLOCKED)](https://www.youtube.com/watch?v=TKnUkNa5TrU)
 - [How to Type DISCORD EMBEDS!](https://www.youtube.com/watch?v=945qjY-SMOs)

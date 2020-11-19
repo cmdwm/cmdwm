@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [Channel Updates! (Taking a break?)](https://www.youtube.com/watch?v=zQfGwnzTCoo)
 - [Reacting to the Worst TikToks We Could Find](https://www.youtube.com/watch?v=JMIweFvgVvI)
 - [Playing Omegle Challenges...](https://www.youtube.com/watch?v=BMGimjcGypY)
 - [How to Play Minecraft At School (FREE & UNBLOCKED)](https://www.youtube.com/watch?v=TKnUkNa5TrU)
 - [How to Type DISCORD EMBEDS!](https://www.youtube.com/watch?v=945qjY-SMOs)
-- [5 memes in 30 seconds](https://www.youtube.com/watch?v=cOBLgASzEzg)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

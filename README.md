@@ -5,7 +5,7 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
-- [Channel Updates! (Taking a break?)](https://www.youtube.com/watch?v=zQfGwnzTCoo)
+- [I was IP BANNED on ROBLOX!](https://www.youtube.com/watch?v=ClVfXbiFiEw)
 - [Reacting to the Worst TikToks We Could Find](https://www.youtube.com/watch?v=JMIweFvgVvI)
 - [Playing Omegle Challenges...](https://www.youtube.com/watch?v=BMGimjcGypY)
 - [How to Play Minecraft At School (FREE & UNBLOCKED)](https://www.youtube.com/watch?v=TKnUkNa5TrU)

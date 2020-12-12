@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [FREE NITRO FOR CHRISTMAS! (12DOAS #1)](https://www.youtube.com/watch?v=MadZi4liGF8)
 - [WillHasAwesomeShoes - Ghetto Christmas (Official Video)](https://www.youtube.com/watch?v=5pE1RkmjvBc)
 - [I was IP BANNED on ROBLOX!](https://www.youtube.com/watch?v=ClVfXbiFiEw)
 - [Reacting to the Worst TikToks We Could Find](https://www.youtube.com/watch?v=JMIweFvgVvI)
 - [Playing Omegle Challenges...](https://www.youtube.com/watch?v=BMGimjcGypY)
-- [How to Play Minecraft At School (FREE & UNBLOCKED)](https://www.youtube.com/watch?v=TKnUkNa5TrU)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

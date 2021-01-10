@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [How to Get Free Discord Nitro (FOREVER)](https://www.youtube.com/watch?v=GvaduM3Q6dU)
 - [I Tried Shopify Dropshipping For a Week (From Scratch)](https://www.youtube.com/watch?v=qYay57ph0ro)
 - [I Paid MORGAN FREEMAN to MAKE MY VOICEMAIL!](https://www.youtube.com/watch?v=ShkSwXPBe0U)
 - [FREE NITRO FOR CHRISTMAS! (12DOAS #1)](https://www.youtube.com/watch?v=MadZi4liGF8)
 - [WillHasAwesomeShoes - Ghetto Christmas (Official Video)](https://www.youtube.com/watch?v=5pE1RkmjvBc)
-- [I was IP BANNED on ROBLOX!](https://www.youtube.com/watch?v=ClVfXbiFiEw)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

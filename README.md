@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
+- [This PROMO CODE Gives You FREE NITRO!](https://www.youtube.com/watch?v=4ov_pqq60aQ)
 - [TROLLING on OMEGLE for 5 MINUTES!](https://www.youtube.com/watch?v=kTJx_0HsAYM)
 - [AFTER PARTY: Happy Nights & Pretty Skies](https://www.youtube.com/watch?v=RSCXppZN3LU)
 - [WillHasAwesomeShoes - Happy Nights & Pretty Skies (Official Music Video)](https://www.youtube.com/watch?v=UBiapA_EJbY)
 - [don't be scared, it's almost here.](https://www.youtube.com/watch?v=sL5aLiR3Em0)
-- [How to Get Free Discord Nitro (FOREVER)](https://www.youtube.com/watch?v=GvaduM3Q6dU)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

@@ -8,8 +8,8 @@
 - [Lil Nas X - Call Me By Your Name (Acapella Vocals Only - NO AUTOTUNE!)](https://www.youtube.com/watch?v=ygWUE50TjhA)
 - [TROLLING on OMEGLE for 5 MINUTES!](https://www.youtube.com/watch?v=kTJx_0HsAYM)
 - [AFTER PARTY: Happy Nights & Pretty Skies](https://www.youtube.com/watch?v=RSCXppZN3LU)
-- [WillHasAwesomeShoes - Happy Nights & Pretty Skies (Official Music Video)](https://www.youtube.com/watch?v=UBiapA_EJbY)
-- [don't be scared, it's almost here.](https://www.youtube.com/watch?v=sL5aLiR3Em0)
+- [I Tried Shopify Dropshipping For a Week (From Scratch)](https://www.youtube.com/watch?v=qYay57ph0ro)
+- [I Paid MORGAN FREEMAN to MAKE MY VOICEMAIL!](https://www.youtube.com/watch?v=ShkSwXPBe0U)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

@@ -7,9 +7,9 @@
 <!-- YOUTUBE:START -->
 - [Lil Nas X - Call Me By Your Name &lpar;Acapella Vocals Only - NO AUTOTUNE!&rpar;](https://www.youtube.com/watch?v=ygWUE50TjhA)
 - [TROLLING on OMEGLE for 5 MINUTES!](https://www.youtube.com/watch?v=kTJx_0HsAYM)
-- [AFTER PARTY: Happy Nights &amp; Pretty Skies](https://www.youtube.com/watch?v=RSCXppZN3LU)
 - [I Tried Shopify Dropshipping For a Week &lpar;From Scratch&rpar;](https://www.youtube.com/watch?v=qYay57ph0ro)
 - [I Paid MORGAN FREEMAN to MAKE MY VOICEMAIL!](https://www.youtube.com/watch?v=ShkSwXPBe0U)
+- [FREE NITRO FOR CHRISTMAS! &lpar;12DOAS #1&rpar;](https://www.youtube.com/watch?v=MadZi4liGF8)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

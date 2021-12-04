@@ -5,11 +5,11 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
-- [KID CURSES ME OUT ON OMEGLE!](https://www.youtube.com/watch?v=5Vvez0jHkv4)
+- [KID YELLS AT ME ON OMEGLE!](https://www.youtube.com/watch?v=5Vvez0jHkv4)
 - [TROLLING on OMEGLE for 5 MINUTES!](https://www.youtube.com/watch?v=kTJx_0HsAYM)
+- [I Tried Shopify Dropshipping For a Week &lpar;From Scratch&rpar;](https://www.youtube.com/watch?v=qYay57ph0ro)
 - [Reacting to the Worst TikToks We Could Find](https://www.youtube.com/watch?v=JMIweFvgVvI)
-- [Spoon Ads SUCK! &lpar;so i made one&rpar;](https://www.youtube.com/watch?v=9ep1msdMyN0)
-- [Playing AMONG US For The FIRST TIME!](https://www.youtube.com/watch?v=3wPs85EN6M8)
+- [How to Type DISCORD EMBEDS!](https://www.youtube.com/watch?v=945qjY-SMOs)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

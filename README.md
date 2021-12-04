@@ -8,8 +8,8 @@
 - [KID YELLS AT ME ON OMEGLE!](https://www.youtube.com/watch?v=5Vvez0jHkv4)
 - [TROLLING on OMEGLE for 5 MINUTES!](https://www.youtube.com/watch?v=kTJx_0HsAYM)
 - [I Tried Shopify Dropshipping For a Week &lpar;From Scratch&rpar;](https://www.youtube.com/watch?v=qYay57ph0ro)
+- [I Paid MORGAN FREEMAN to MAKE MY VOICEMAIL!](https://www.youtube.com/watch?v=ShkSwXPBe0U)
 - [Reacting to the Worst TikToks We Could Find](https://www.youtube.com/watch?v=JMIweFvgVvI)
-- [How to Type DISCORD EMBEDS!](https://www.youtube.com/watch?v=945qjY-SMOs)
 <!-- YOUTUBE:END -->
 
 [▶ Want more videos?](https://yt.willm.xyz/videos)

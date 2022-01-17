@@ -5,7 +5,7 @@
 
 ## 📺 YouTube Videos
 <!-- YOUTUBE:START -->
-- [How To Screenshot Snapchat &lpar;2021 Update&rpar;](https://www.youtube.com/watch?v=_yHjzfjpbcE)
+- [How To Screenshot Snapchat &lpar;2022 Update&rpar;](https://www.youtube.com/watch?v=_yHjzfjpbcE)
 - [ＣＲＯＳＳＦＡＤＥＤ ⛽️🍃](https://www.youtube.com/watch?v=4OZPeEfhpvM)
 - [I GOT VIOLATED ON OMEGLE! &lpar;Kid Roasts Me&rpar;](https://www.youtube.com/watch?v=_1o2xPGQJ1A)
 - [KID YELLS AT ME ON OMEGLE!](https://www.youtube.com/watch?v=5Vvez0jHkv4)

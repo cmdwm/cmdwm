@@ -3,9 +3,9 @@
 
 
 ## 👤 Social Media
->>> Twitter: [willmccrudden](https://twitter.com/willhungover) <br>
+>>> Twitter: [willhungover](https://twitter.com/willhungover) <br>
 Instagram: [will.mccrudden](https://instagram.com/will.mccrudden) <br>
-<!--![Stats](https://github-readme-stats.vercel.app/api/top-langs/?username=whasonyt&layout=compact&theme=dark)
+![Stats](https://github-readme-stats.vercel.app/api/top-langs/?username=whasonyt&layout=compact&theme=dark)
 <!--
 **whasonyt/whasonyt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
